@@ -1,0 +1,31 @@
+
+## 355.  'Awake, My Soul!'
+[edit](https://docs.google.com/document/d/1JYdKPSdAX5Bbo5KutEBAUTjLD3SxNeCa/edit?mode=html)
+
+
+
+    Major Key: F
+
+    1.
+    Awake, my soul! stretch every nerve,
+    And press with vigor on;
+    A heavenly race demands thy zeal,
+    And an immortal crown.
+
+    2.
+    'Tis God's all animating voice
+    That calls thee from on high;
+    'Tis He whose hand presents the prize
+    To thine aspiring eye.
+
+    3.
+    A cloud of witnesses around
+    Hold thee in full survey;
+    Forget the steps already trod,
+    And onward urge thy way.
+
+    4.
+    Blest Savior, introduced by Thee,
+    Our race have we begun;
+    And, crowned with victory, at Thy feet
+    We'll lay our trophies down.

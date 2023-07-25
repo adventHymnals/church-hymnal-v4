@@ -1,0 +1,26 @@
+
+## 623.  Rescue the Perishing
+[edit](https://docs.google.com/document/d/12rkZTfSuYsARQDueqxIwPsmxnGMnjwwM/edit?mode=html)
+
+
+
+    1.
+    Rescue the perishing, care for the dying,
+    Snatch them in pity from sin and the grave;
+    Weep o'er the erring one, lift up the fallen,
+    Tell them of Jesus, the mighty to save.
+    CHORUS:
+    Rescue the perishing, care for the dying;
+    Jesus is merciful, Jesus will save.
+
+    2.
+    Though they are slighting Him, still He is waiting,
+    Waiting the penitent child to receive;
+    Plead with them earnestly, plead with them gently;
+    He will forgive if they only believe.
+
+    3.
+    Rescue the perishing, duty demands it;
+    Strength for thy labor the Lord will provide;
+    Back to the narrow way patiently win them;
+    Tell the poor wanderer a Savior has died.

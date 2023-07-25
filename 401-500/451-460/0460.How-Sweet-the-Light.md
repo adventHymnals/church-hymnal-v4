@@ -1,0 +1,23 @@
+
+## 460.  How Sweet the Light
+[edit](https://docs.google.com/document/d/1WcbMKgfcCQ8H3tZmRJ6dsMpxOOe6FVrO/edit?mode=html)
+
+
+
+    1.
+    How sweet the light of Sabbath eve! 
+    How soft the sunbeams lingering there! 
+    For these blest hours the world I leave, 
+    Wafted on wings of faith and prayer. 
+
+    2.
+    Season of rest! the tranquil soul 
+    Feels the sweet calm, and melts in love; 
+    And while these sacred moments roll, 
+    Faith sees a smiling heaven above. 
+
+    3.
+    Nor will our days of toil be long; 
+    Our pilgrimage will soon be trod; 
+    And we shall join the ceaseless song, 
+    The endless Sabbath of our God.
