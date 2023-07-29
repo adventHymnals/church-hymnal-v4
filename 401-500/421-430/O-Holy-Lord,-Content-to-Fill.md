@@ -1,0 +1,23 @@
+
+## 426.  'O Holy Lord, Content to Fill'
+[edit](https://docs.google.com/document/d/1Z3HDlhIGFx1e%2DEKeOQT6SeTsQa%2D122dz/edit?mode=html)
+
+
+
+    1.
+    O holy Lord, content to fill 
+    In lowly home the lowliest place; 
+    Thy childhood's law, a mother's will; 
+    Obedience meek, Thy brightest grace. 
+
+    2.
+    Lead every child that bears Thy name 
+    To walk in Thine own guileless way, 
+    To dread the touch of sin and shame, 
+    And humbly, like Thyself, obey. 
+
+    3.
+    So shall we, waiting here below, 
+    Like Thee, our Lord, a little span, 
+    In wisdom and in stature grow, 
+    And favor with both God and man.

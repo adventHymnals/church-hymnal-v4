@@ -1,0 +1,27 @@
+
+## 258.  I Need Thee Every Hour
+[edit](https://docs.google.com/document/d/1y2QKP_rpP00P5YTWvFawwKOeowDworLQ/edit?mode=html)
+
+
+
+    Major Key: A Flat
+
+    1.
+    I need Thee every hour, Most gracious Lord;
+    No tender voice like Thine Can peace afford.
+    CHORUS:
+    I need Thee, O I need Thee;
+    Every hour I need Thee;
+    O bless me now, my Savior, I come to Thee.
+
+    2.
+    I need Thee every hour; Stay Thou nearby;
+    Temptations lose their power When Thou art nigh.
+
+    3.
+    I need Thee every hour, In joy or pain;
+    Come quickly and abide, Or life is vain.
+
+    4.
+    I need Thee every hour; Teach me Thy will;
+    And Thy rich promises In me fulfill.

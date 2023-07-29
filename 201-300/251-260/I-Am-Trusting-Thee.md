@@ -1,0 +1,31 @@
+
+## 256.  I Am Trusting Thee
+[edit](https://docs.google.com/document/d/1xqs7Fwkh5PVIq7MwNtbRCYle%2DHtPvFr8/edit?mode=html)
+
+
+
+    Major Key: A Flat
+
+    1.
+    I am trusting Thee, Lord Jesus,
+    Trusting only Thee;
+    Trusting Thee for full salvation,
+    Great and free.
+
+    2.
+    I am trusting Thee for pardon;
+    At Thy feet I bow;
+    For Thy grace and tender mercy,
+    Trusting now.
+
+    3.
+    I am trusting Thee to guide me;
+    Thou alone shalt lead;
+    Every day and hour supplying
+    All my need.
+
+    4.
+    I am trusting Thee, Lord Jesus;
+    Never let me fall;
+    I am trusting Thee forever,
+    And for all.

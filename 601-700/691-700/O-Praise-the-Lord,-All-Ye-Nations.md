@@ -1,0 +1,13 @@
+
+## 693.  'O Praise the Lord, All Ye Nations'
+[edit](https://docs.google.com/document/d/1%2DQTRS4ZO%2D0TJIezr4wcL8ZCO5AAPUBzE/edit?mode=html)
+
+
+
+    1.
+    O praise the Lord, all ye nations: 
+    Praise Him, all ye people. 
+    For His wonderful kindness is great toward us: 
+    And the truth of the Lord endureth forever. 
+    Praise ye the Lord. 
+    Amen.

@@ -1,0 +1,36 @@
+
+## 135.  The Day of Resurrection
+[edit](https://docs.google.com/document/d/17nFe%2D%2DGEcgzxcKt4f94kfaCRvQ9_5YA3/edit?mode=html)
+
+
+
+
+    1.
+    The day of resurrection' 
+    Earth, tell it out abroad' 
+    The passover of gladness, 
+    The passover of God. 
+    From death to life eternal, 
+    From this world to the sky, 
+    Our Christ hath brought us over, 
+    With hymns of victory. 
+
+    2.
+    Our hearts be pure from evil, 
+    That we may see aright 
+    The Lord in rays eternal 
+    Of resurrection light, 
+    And, listening to his accents, 
+    May hear, so calm and plain, 
+    His own "All hail!" and, hearing, 
+    May raise the victor strain. 
+
+    3.
+    Now let the heavens be joyful, 
+    Let earth the song begin, 
+    Let the round world keep triumph 
+    And all that is therein; 
+    Invisible and visible, 
+    Their notes let all things blend, 
+    For Christ the Lord hath risen, 
+    Our joy that hath no end.

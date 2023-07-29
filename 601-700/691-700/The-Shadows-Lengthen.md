@@ -1,0 +1,15 @@
+
+## 698.  The Shadows Lengthen
+[edit](https://docs.google.com/document/d/1%2DXy7_Fn98bcoRjmtGTI4fMqkRzZoMaHD/edit?mode=html)
+
+
+
+    1.
+    The shadows lengthen, Lord, with me abide. 
+    O Son of God, 
+    Be Thou my Friend and Guide; 
+    Through all the coming days 
+    Whate'er betide' 
+    In the cleft Rock of Ages 
+    Let me hide 
+    In peace, perfect peace!

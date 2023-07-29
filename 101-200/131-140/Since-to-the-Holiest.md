@@ -1,0 +1,30 @@
+
+## 139.  Since to the Holiest
+[edit](https://docs.google.com/document/d/17lgzenwTefkptRyUH1AC7HiOBMuQRdr8/edit?mode=html)
+
+
+
+
+    1.
+    Since to the Holiest none may enter in 
+    Save those whom Jesus' blood has cleansed from sin' 
+    The blood is life, and must for sin atone; 
+    Christ is my life, my life in Christ alone. 
+
+    2.
+    So when life's sun is sinking in the west, 
+    I know that with the coming dawn comes rest; 
+    And when the shadows show the close of day, 
+    He who has conquered death shall light my way. 
+
+    3.
+    And as I've learned on earth the rest He gives, 
+    And here to live with Him who ever lives, 
+    I know where He is, at my God's right hand, 
+    Must be my country and my Fatherland. 
+
+    4.
+    Thus may I prove in Christ my risen Lord 
+    All that He's promised in His written word' 
+    My life, my way, my home, my rest above, 
+    When sleep of death shall wake to endless love.

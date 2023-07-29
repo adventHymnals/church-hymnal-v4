@@ -1,0 +1,13 @@
+
+## 689.  Glory Be to the Father
+[edit](https://docs.google.com/document/d/13C4LiflUh_7tNgB2sn4kr0X213%2DMXwNa/edit?mode=html)
+
+
+
+    Glory be to the Father, 
+    And to the Son, 
+    And to the Holy Ghost; 
+    As it was in the beginning, 
+    Is now, and ever shall be, 
+    World without end. 
+    Amen, Amen. 

@@ -1,0 +1,29 @@
+
+## 679.  'Breathe on Me, Breath of God'
+[edit](https://docs.google.com/document/d/14dcIdaJZdqWM%2DW0uO3aPw2JwgkYuycAM/edit?mode=html)
+
+
+
+    1.
+    Breathe on me, breath of God,
+    Fill me with life anew,
+    That I may love what Thou dost love,
+    And do what Thou wouldst do.
+
+    2.
+    Breathe on me, breath of God,
+    Until my heart is pure,
+    Until with Thee I will one will,
+    To do and to endure.
+
+    3.
+    Breathe on me, breath of God,
+    Till I am wholly Thine,
+    Until this earthly part of me
+    Glows with Thy fire divine.
+
+    4.
+    Breathe on me, breath of God,
+    So shall I constant be,
+    And live with Thee the perfect life
+    Of Thine eternity.

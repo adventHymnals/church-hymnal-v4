@@ -1,0 +1,30 @@
+
+## 228.  Almost Persuaded
+[edit](https://docs.google.com/document/d/1wHtnHOu8J_7rWjTFxQqX%2DsIJKNaAZNw9/edit?mode=html)
+
+
+
+
+    1.
+    Almost persuaded now to believe; 
+    Almost persuaded Christ to receive. 
+    Seems now some soul to say, 
+    'Go, Spirit, go thy way, 
+    Some more convenient day 
+    On thee I'll call.' 
+
+    2.
+    Almost persuaded, come, come today; 
+    Almost persuaded, turn not away. 
+    Jesus invites you here, 
+    Angels are lingering near, 
+    Prayers rise from hearts so dear; 
+    O wanderer, come! 
+
+    3.
+    Almost persuaded, harvest is past; 
+    Almost persuaded, doom comes at last! 
+    'Almost' cannot avail; 
+    'Almost' is but to fail! 
+    Sad, sad that bitter wail, 
+    'Almost'but lost!'

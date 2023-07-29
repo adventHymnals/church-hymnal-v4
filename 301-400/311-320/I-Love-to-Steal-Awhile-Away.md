@@ -1,0 +1,29 @@
+
+## 317.  I Love to Steal Awhile Away
+[edit](https://docs.google.com/document/d/1Kwh5w7w8MJsxILgSaUXjsseIKJsX%2Dfh1/edit?mode=html)
+
+
+
+    1.
+    Away I love to steal awhile away 
+    From every cumbering care, 
+    And spend the hours of setting day 
+    In humble, grateful prayer. 
+
+    2.
+    I love in solitude to shed 
+    The penitential tear; 
+    And all His promises to plead, 
+    Where none but God can hear. 
+
+    3.
+    I love to think on mercies past, 
+    And future good implore; 
+    And all my cares and sorrows cast 
+    On Him whom I adore. 
+
+    4.
+    I love by faith to take a view 
+    Of brighter scenes to come; 
+    The prospect doth my strength renew 
+    While here away from home.

@@ -1,0 +1,19 @@
+
+## 476.  Bread of the World
+[edit](https://docs.google.com/document/d/1UyNGWtgpKMoos9js1M9nQLaLNjTEc3Iu/edit?mode=html)
+
+
+
+    Major Key: E Flat
+
+    1.
+    Bread of the world in mercy broken,
+    Wine of the soul in mercy shed,
+    By whom the words of life are spoken,
+    And in whose death our sins are dead;
+
+    2.
+    Look on the heart by sorrow broken,
+    Look on the tears by sinners shed;
+    And be Thy feast to us the token
+    That by Thy grace our souls are fed. Amen.

@@ -1,0 +1,30 @@
+
+## 47.  Forth in Thy Name
+[edit](https://docs.google.com/document/d/1T7fXHPYh2UOyts8o%2D7HBGYjSJPfdaJe1/edit?mode=html)
+
+
+
+
+    1.
+    Forth in Thy Name, O Lord, I go, 
+    My daily labor to pursue; 
+    Thee, only Thee, resolved to know 
+    In all I think, or speak, or do. 
+
+    2.
+    The task Thy wisdom hath assigned 
+    O let me cheerfully fulfill; 
+    In all my works Thy presence find, 
+    And prove Thy good and perfect will. 
+
+    3.
+    Give me to bear Thy easy yoke, 
+    And every moment watch and pray; 
+    And still to things eternal look, 
+    And hasten to Thy glorious day: 
+
+    4.
+    For Thee delightfully employ 
+    Whate'er Thy bounteous grace hath given; 
+    And run my course with even joy, 
+    And closely walk with Thee to heaven.

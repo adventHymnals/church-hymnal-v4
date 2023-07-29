@@ -1,0 +1,38 @@
+
+## 541.  Lift Up the Trumpet
+[edit](https://docs.google.com/document/d/1m9Jpyjzf2qU%2DzOOD9E9_JVWSgrdqjcpJ/edit?mode=html)
+
+
+
+    1.
+    Lift up the trumpet, and loud let it ring: 
+    Jesus is coming again! 
+    Cheer up, ye pilgrims, be joyful and sing: 
+    Jesus is coming again! 
+    REFRAIN:
+    Coming again, coming again, 
+    Jesus is coming again! 
+
+    2.
+    Echo it, hilltops; proclaim it, ye plains: 
+    Jesus is coming again! 
+    Coming in glory, the Lamb that was slain; 
+    Jesus is coming again! 
+
+    3.
+    Sound it, old ocean, in each mighty wave: 
+    Jesus is coming again! 
+    Break on the sands of the shores that ye lave; 
+    Jesus is coming again! 
+
+    4.
+    Heavings of earth, tell the vast, wondering throng: 
+    Jesus is coming again! 
+    Tempests and whirlwinds, the anthem prolong; 
+    Jesus is coming again! 
+
+    5.
+    Nations are angry'by this we do know 
+    Jesus is coming again! 
+    Knowledge increases; men run to and fro; 
+    Jesus is coming again!

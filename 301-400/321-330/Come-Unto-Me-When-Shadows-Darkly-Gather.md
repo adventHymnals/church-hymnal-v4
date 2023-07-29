@@ -1,0 +1,23 @@
+
+## 323.  Come Unto Me When Shadows Darkly Gather
+[edit](https://docs.google.com/document/d/1JF%2D3c2Lp4Q6CnDNX7Su8%2Dv5aG5qPfSCF/edit?mode=html)
+
+
+
+    1.
+    Come unto me when shadows darkly gather, 
+    When the sad heart is weary and distressed; 
+    Seeking for comfort from your heavenly Father, 
+    Come unto me, and I will give you rest. 
+
+    2.
+    Large are the mansions in our Father's dwelling, 
+    Glad are those homes that sorrows never dim; 
+    Sweet are the harps in holy music swelling, 
+    Soft are the tones that raise the heavenly hymn. 
+
+    3.
+    There, like an Eden blossoming in gladness, 
+    Bloom the fair flowers by earth so rudely pressed; 
+    Come unto Him all ye who droop in sadness, 
+    "Come unto Me, and I will give you rest."

@@ -1,0 +1,36 @@
+
+## 114.  The Hidden Years at Nazareth
+[edit](https://docs.google.com/document/d/16WRRZhdSNs3Jc9099WUUww1%2DL72NBSXl/edit?mode=html)
+
+
+
+
+    1.
+    The hidden years at Nazareth ! 
+    How Beautiful they seem, 
+    Like fountains flowing in the dark 
+    Or waters in a dream ! 
+    Like waters under Syrian stars 
+    Reflecting lights above, 
+    Repeating in their silent depths 
+    The wonder of God's love. 
+
+    2.
+    The hidden years at Nazareth ! 
+    How marvelous they lie, 
+    As open to the smile of God 
+    As to the Syrians sky ! 
+    As open to the heart of man 
+    As to the genial sun, 
+    With dreams of high asventuring, 
+    And deeds of kindness done. 
+
+    3.
+    The hidden years at Nazareth ! 
+    How radiant they rise 
+    With life and death in balance laid 
+    Before a lad's clear eyes ! 
+    O soul of youth, forever choose, 
+    Forgetting fate or fear, 
+    To live for truth, or die with God, 
+    Who stands beside thee here.

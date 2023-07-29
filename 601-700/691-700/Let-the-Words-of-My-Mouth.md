@@ -1,0 +1,12 @@
+
+## 691.  Let the Words of My Mouth
+[edit](https://docs.google.com/document/d/1%2D_dfo5rhD0zlleuE69qK%2Du0ZltozgAZQ/edit?mode=html)
+
+
+
+    1.
+    Let the words of my mouth 
+    And the meditations of my heart 
+    Be acceptable in Thy sight, 
+    O Lord, my strength and my Redeemer. 
+    Amen.

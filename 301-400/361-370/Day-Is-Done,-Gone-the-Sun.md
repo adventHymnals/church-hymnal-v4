@@ -1,0 +1,8 @@
+
+## 370.  'Day Is Done, Gone the Sun'
+[edit](https://docs.google.com/document/d/1F1CO9I4jq8VNuf0lJTinalCvPtU%2DMxLX/edit?mode=html)
+
+
+
+    Day is done, gone the sun, from the lake, from the hills, from the sky, 
+    Safely rest, all is well, God is nigh.

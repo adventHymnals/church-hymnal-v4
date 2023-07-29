@@ -1,0 +1,12 @@
+
+## 688.  'Hear Our Prayer, O Lord'
+[edit](https://docs.google.com/document/d/13ASIxvuPemsrBO6yN%2D3yR9rXzX6F45eG/edit?mode=html)
+
+
+
+    1.
+    Hear our Prayer, O Lord,
+    Hear our prayer, O Lord;
+    Incline Thine ear to us,
+    And grant us Thy peace.
+    Amen.
